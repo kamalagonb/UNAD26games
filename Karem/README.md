@@ -1,5 +1,5 @@
 ## Karem Malagón
-![Foto personal] ()
+![Foto personal] (1707318108220.jpg)
 
 **Rol:** Productora y probadora de juegos
 **Ubicación:** CEAD JAG.
