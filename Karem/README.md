@@ -1,5 +1,5 @@
 ## Karem Malagón
-![Foto personal] (1707318108220.jpg)
+![Foto personal] [(1707318108220.jpg)](https://github.com/kamalagonb/UNAD26games/blob/Karem/1707318108220.jpg?raw=true)
 
 **Rol:** Productora y probadora de juegos
 **Ubicación:** CEAD JAG.
